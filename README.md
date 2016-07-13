@@ -16,3 +16,4 @@ Not coming now lelelel
 - Olaf
 - Poppy
 - Trundle
+- YASOUU
